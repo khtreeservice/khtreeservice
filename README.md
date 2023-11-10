@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @khtreeservice
-- 👀 I’m interested in promoting my tree services for removal.
+- 👀 I’m interested in promoting my services for Tree Removal.
 - I have been felling trees privately for homeowners since 2017 to clear trails, fell hazardous hanging trees, and collect dead standing trees for firewood.
 - I have a Forestry Technician Diploma from Sir Sandford Fleming College where I learned how to safely operate a chainsaw, fell trees in a safe and controlled manor,
 - properly identify defects in trees, and how to prune to promote tree health.
